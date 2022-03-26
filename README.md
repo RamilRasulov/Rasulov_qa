@@ -1,1 +1,0 @@
-# Rasulov_qa
